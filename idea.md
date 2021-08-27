@@ -1,3 +1,9 @@
+
+---
+https://hiszm.lanzoui.com/iiCM8qmolud
+密码:hiszm
+---
+
 # 下载破解最新的 IDEA 2020.3.2 版本安装包
 后端实习
 **第一步: 下载最新的 IDEA 2020.3.2 版本安装包**
