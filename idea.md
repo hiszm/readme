@@ -4,6 +4,10 @@
 https://hiszm.lanzoui.com/iiCM8qmolud
 密码:hiszm
 
+
+备份：https://github.com/hiszm/readme/tree/main/resource
+
+
 ---
 
 # 下载破解最新的 IDEA 2020.3.2 版本安装包
